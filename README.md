@@ -1,4 +1,4 @@
-# StingClient leaked
+# Premium StingClient leaked
 
 any new client from the Stink group will be leaked here, why? many reasons:
 1- scamming players
